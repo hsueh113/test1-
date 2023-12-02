@@ -1,0 +1,2 @@
+-First code ha ha.
+https://www.google.com/imgres?imgurl=https%3A%2F%2Fimageio.forbes.com%2Fspecials-images%2Fimageserve%2F5d35eacaf1176b0008974b54%2F2020-Chevrolet-Corvette-Stingray%2F0x0.jpg%3Fformat%3Djpg%26crop%3D4560%2C2565%2Cx790%2Cy784%2Csafe%26width%3D960&tbnid=Juxze5zwVg-eaM&vet=12ahUKEwj47rHR3O-CAxU9Z_UHHYpUCfwQMygAegQIARBQ..i&imgrefurl=https%3A%2F%2Fwww.forbes.com%2Fsites%2Fjimgorzelany%2F2019%2F07%2F23%2Fhere-are-the-coolest-new-cars-for-2020%2F&docid=HZLLyFhoQjvNCM&w=960&h=540&q=car&ved=2ahUKEwj47rHR3O-CAxU9Z_UHHYpUCfwQMygAegQIARBQ
